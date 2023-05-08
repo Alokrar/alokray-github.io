@@ -1,2 +1,1 @@
-# alokray-github.io
-Good
+# alokray.com
